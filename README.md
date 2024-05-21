@@ -1,1 +1,1 @@
-Biathletes undergo rigorous training programs that include skiing, shooting, strength training, endurance training, and mental preparation for competition.
+Ice rinks are typically kept at temperatures below freezing to ensure the ice remains solid and provides optimal conditions for skating.
