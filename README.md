@@ -1,1 +1,1 @@
-Ice rinks are typically kept at temperatures below freezing to ensure the ice remains solid and provides optimal conditions for skating.
+Canadian figure skater Kurt Browning was the first to successfully land a quadruple jump in competition at the 1988 World Championships.
