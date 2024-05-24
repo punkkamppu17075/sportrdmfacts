@@ -1,1 +1,1 @@
-Ole Einar Bjørndalen of Norway holds the record for the most Olympic biathlon medals, with 13 medals won between 1998 and 2014, including 8 gold medals.
+Biathletes use two main skiing techniques: the classical (or diagonal) technique, which involves a kick-and-glide motion, and the skating (or freestyle) technique, which resembles ice skating.
