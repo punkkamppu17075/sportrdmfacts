@@ -1,1 +1,1 @@
-Biathletes use two main skiing techniques: the classical (or diagonal) technique, which involves a kick-and-glide motion, and the skating (or freestyle) technique, which resembles ice skating.
+Quadruple jumps, or "quads," are jumps with four full rotations in the air and are the most difficult jumps performed in figure skating competitions.
