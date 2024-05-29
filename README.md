@@ -1,1 +1,1 @@
-Quadruple jumps, or "quads," are jumps with four full rotations in the air and are the most difficult jumps performed in figure skating competitions.
+The Davis Cup format underwent significant changes in 2019, transitioning to a World Cup-style event featuring 18 teams competing in a week-long tournament.
