@@ -1,1 +1,1 @@
-The Davis Cup format underwent significant changes in 2019, transitioning to a World Cup-style event featuring 18 teams competing in a week-long tournament.
+Costume malfunctions, such as wardrobe slips or tears, can occur during performances and may affect a skater's confidence and concentration on the ice.
