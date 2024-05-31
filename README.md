@@ -1,1 +1,1 @@
-Costume malfunctions, such as wardrobe slips or tears, can occur during performances and may affect a skater's confidence and concentration on the ice.
+Shooting accuracy is critical in biathlon, as missed targets result in time penalties, with additional time added to the athlete's overall race time.
