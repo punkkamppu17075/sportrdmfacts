@@ -1,1 +1,1 @@
-Sonja Henie of Norway was the first female figure skater to win three consecutive Olympic gold medals, achieving this feat in 1928, 1932, and 1936.
+Biathlon became an official Olympic sport at the 1960 Winter Olympics in Squaw Valley, California, where it featured a 20-kilometer individual race for men.
