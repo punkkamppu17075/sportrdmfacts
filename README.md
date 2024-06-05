@@ -1,1 +1,1 @@
-Figure skating became an official Olympic sport at the 1908 Summer Olympics in London, with separate events for men, women, and pairs skating.
+Biathletes shoot at targets from both the standing and prone positions, with five circular targets positioned 50 meters away for each shooting stage.
