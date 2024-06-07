@@ -1,1 +1,1 @@
-Biathletes shoot at targets from both the standing and prone positions, with five circular targets positioned 50 meters away for each shooting stage.
+The Davis Cup format underwent significant changes in 2019, transitioning to a World Cup-style event featuring 18 teams competing in a week-long tournament.
