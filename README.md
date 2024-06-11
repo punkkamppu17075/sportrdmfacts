@@ -1,1 +1,1 @@
-The term "love" for zero in tennis scoring is believed to have originated from the French word "l'oeuf," meaning egg, which resembles the shape of a zero.
+Irina Rodnina of the Soviet Union holds the record for the most world championship titles in pairs skating, winning 10 gold medals between 1969 and 1980.
