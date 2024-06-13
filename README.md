@@ -1,1 +1,1 @@
-Biathlon combines cross-country skiing and rifle marksmanship, with athletes skiing multiple laps around a course and stopping at shooting ranges to shoot at targets.
+Figure skating routines are judged based on technical elements, including jumps, spins, and footwork, as well as artistic components like choreography, interpretation, and expression.
