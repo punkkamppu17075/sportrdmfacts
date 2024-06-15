@@ -1,1 +1,1 @@
-Ski waxing is crucial in biathlon, as properly waxed skis provide optimal glide and grip on varying snow conditions, enhancing performance and efficiency.
+Canadian figure skater Kurt Browning was the first to successfully land a quadruple jump in competition at the 1988 World Championships.
