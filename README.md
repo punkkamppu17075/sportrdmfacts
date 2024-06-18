@@ -1,1 +1,1 @@
-Canadian figure skater Kurt Browning was the first to successfully land a quadruple jump in competition at the 1988 World Championships.
+The mixed relay event, introduced at the 2014 Sochi Olympics, consists of two men and two women competing in a relay format, with each athlete completing two shooting stages.
