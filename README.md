@@ -1,1 +1,1 @@
-The mixed relay event, introduced at the 2014 Sochi Olympics, consists of two men and two women competing in a relay format, with each athlete completing two shooting stages.
+Olympic figure skating includes men's singles, women's singles, pairs skating, and ice dance, with each event featuring both short programs and free skating (long) programs.
