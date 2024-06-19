@@ -1,1 +1,1 @@
-Olympic figure skating includes men's singles, women's singles, pairs skating, and ice dance, with each event featuring both short programs and free skating (long) programs.
+The scoring system in figure skating underwent significant changes in 2004, transitioning to a cumulative points-based system known as the International Judging System (IJS).
