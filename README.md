@@ -1,1 +1,1 @@
-The scoring system in figure skating underwent significant changes in 2004, transitioning to a cumulative points-based system known as the International Judging System (IJS).
+Biathletes often train at high-altitude locations with access to snow and challenging terrain, simulating race conditions and optimizing performance for competition.
