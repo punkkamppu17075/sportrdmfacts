@@ -1,1 +1,1 @@
-The World Figure Skating Championships have been held annually since 1896, showcasing the world's top figure skaters competing for individual and team titles.
+Costume designers collaborate with skaters to create costumes that enhance their performance and reflect the theme or character of their routine.
