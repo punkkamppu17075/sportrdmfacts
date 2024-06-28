@@ -1,1 +1,1 @@
-Costume designers collaborate with skaters to create costumes that enhance their performance and reflect the theme or character of their routine.
+The Davis Cup is the premier international team event in men's tennis, established in 1900 and named after American tennis player Dwight Davis.
