@@ -1,1 +1,1 @@
-A tiebreaker is used to determine the winner of a set that reaches a score of 6-6, with players competing to win at least seven points by a margin of two.
+Ice dance became an official Olympic event in 1976, featuring couples performing intricate footwork and choreography to music without jumps or throws.
