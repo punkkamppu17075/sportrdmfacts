@@ -1,1 +1,1 @@
-Ice dance became an official Olympic event in 1976, featuring couples performing intricate footwork and choreography to music without jumps or throws.
+Figure skating originated in Scotland in the 18th century as a form of recreational pastime, with early skaters using metal blades attached to their shoes for gliding on ice.
