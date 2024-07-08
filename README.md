@@ -1,1 +1,1 @@
-Figure skating originated in Scotland in the 18th century as a form of recreational pastime, with early skaters using metal blades attached to their shoes for gliding on ice.
+Biathlon became an official Olympic sport at the 1960 Winter Olympics in Squaw Valley, California, where it featured a 20-kilometer individual race for men.
