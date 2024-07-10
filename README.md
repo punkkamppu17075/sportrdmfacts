@@ -1,1 +1,1 @@
-Figure skaters often wear elaborate costumes designed to complement their music, choreography, and performance style, incorporating sequins, feathers, and intricate embellishments.
+Olympic figure skating includes men's singles, women's singles, pairs skating, and ice dance, with each event featuring both short programs and free skating (long) programs.
