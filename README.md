@@ -1,1 +1,1 @@
-Olympic figure skating includes men's singles, women's singles, pairs skating, and ice dance, with each event featuring both short programs and free skating (long) programs.
+The Biathlon World Championships have been held annually since 1958, featuring a range of individual and team events for men and women.
