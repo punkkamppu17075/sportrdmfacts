@@ -1,1 +1,1 @@
-The Biathlon World Championships have been held annually since 1958, featuring a range of individual and team events for men and women.
+Judges award scores based on the quality and difficulty of elements performed, with deductions for mistakes, falls, and errors in execution.
