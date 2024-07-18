@@ -1,1 +1,1 @@
-Judges award scores based on the quality and difficulty of elements performed, with deductions for mistakes, falls, and errors in execution.
+The scoring system in figure skating underwent significant changes in 2004, transitioning to a cumulative points-based system known as the International Judging System (IJS).
