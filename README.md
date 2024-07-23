@@ -1,1 +1,1 @@
-Costume malfunctions, such as wardrobe slips or tears, can occur during performances and may affect a skater's confidence and concentration on the ice.
+Strawberries and cream is a traditional snack enjoyed by spectators at Wimbledon, with over 28,000 kilograms of strawberries consumed during the tournament.
