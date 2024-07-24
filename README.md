@@ -1,1 +1,1 @@
-Strawberries and cream is a traditional snack enjoyed by spectators at Wimbledon, with over 28,000 kilograms of strawberries consumed during the tournament.
+The term "love" for zero in tennis scoring is believed to have originated from the French word "l'oeuf," meaning egg, which resembles the shape of a zero.
