@@ -1,1 +1,1 @@
-The term "love" for zero in tennis scoring is believed to have originated from the French word "l'oeuf," meaning egg, which resembles the shape of a zero.
+The Wimbledon Championships are known for their strict dress code, with players required to wear predominantly white clothing.
