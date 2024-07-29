@@ -1,1 +1,1 @@
-The Wimbledon Championships are known for their strict dress code, with players required to wear predominantly white clothing.
+The World Figure Skating Championships have been held annually since 1896, showcasing the world's top figure skaters competing for individual and team titles.
