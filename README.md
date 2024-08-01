@@ -1,1 +1,1 @@
-Biathletes shoot at targets from both the standing and prone positions, with five circular targets positioned 50 meters away for each shooting stage.
+Biathlon became an official Olympic sport at the 1960 Winter Olympics in Squaw Valley, California, where it featured a 20-kilometer individual race for men.
