@@ -1,1 +1,1 @@
-Biathlon became an official Olympic sport at the 1960 Winter Olympics in Squaw Valley, California, where it featured a 20-kilometer individual race for men.
+Athletes must shoot at the targets in a specified order (either prone-stand-prone or stand-prone-stand) and have a limited time to complete each shooting stage.
